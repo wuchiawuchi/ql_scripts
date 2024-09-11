@@ -29,4 +29,4 @@ Rookie-wb-WH 保留随时更改或补充此免责声明的权利。一旦使用�
 # 所有的脚本请先查看注释 不看注释的问题不会进行解答
 ### [点击此处加群](http://qm.qq.com/cgi-bin/qm/qr?_wv=1027&k=QvGUgdz3kF38tyLus2reyZ3is8r76U_E&authKey=644r%2BrEY9cTZVX3FN%2FG40y0spy0wp0otNkFtoqAjywEqQftFQYASB8T246CmaosK&noverify=0&group_code=555497377)
 
-### [点击此处加入群2](http://qm.qq.com/cgi-bin/qm/qr?_wv=1027&k=uTI1a97EuReFCvWJKwSU4V5cph7qPOwP&authKey=7tnEVweb2RgQhEdg2KbC5WrG3tjlq81jLYrpbt2bqnCaS0JJ106y2l6ma1J%2B5V%2Bn&noverify=0&group_code=208141370)
+### [点击此处加入2群](http://qm.qq.com/cgi-bin/qm/qr?_wv=1027&k=QOeLvhO2b07rSmIczqkIxABXgSllzrdv&authKey=0kmB4lM51YQViVd%2Fij4tZcuGtzgZvfqfpQSWlr63d8t3kRhqLnTE88NPT6ONxF24&noverify=0&group_code=208141370)
